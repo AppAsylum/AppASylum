@@ -8,7 +8,7 @@
 
 - 💬 Ask me about **React Native, SpringBoot**
 
-- 📫 How to reach me **segunfadiora@yahoo.com**
+- 📫 How to reach me **segunfadiora@yahoo.com, Phone_number: 07010828009**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
